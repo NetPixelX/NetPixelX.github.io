@@ -25,4 +25,4 @@ __About me__
 > NetPixelX is my grand son name so yeah 
 
 
-![logo of our server](https://www.clipartmax.com/middle/m2H7Z5G6K9m2A0N4_memecool-discord-pfp-for-you-cool-kids-bling-bling-boy-png/)
+![logo of our server](file:///media/fuse/drivefs-52d24a82753332196b801c5b62867f27/root/images%20(50).jpeg)
