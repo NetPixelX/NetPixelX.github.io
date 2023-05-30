@@ -6,13 +6,13 @@
 
 ***YouTube***
 
-> my main channel https://www.youtube.com/@TcDark_999
-> my gaming channel https://www.youtube.com/@Darks9998
+ my main channel https://www.youtube.com/@TcDark_999
+my gaming channel https://www.youtube.com/@Darks9998
 
 
 ***Discord***
 
-> my discord server -> https://discord.gg/WgSYET4Nmx
+ my discord server -> https://discord.gg/WgSYET4Nmx
 
 
 __About me__
